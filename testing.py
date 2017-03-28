@@ -1,2 +1,2 @@
 Thanyawat Thanormsa-ang
-kasembundit universuty
+kasembundit 
